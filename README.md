@@ -1,1 +1,0 @@
-# Comtek-Inc-test-task
